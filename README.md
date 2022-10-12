@@ -1,2 +1,2 @@
 # LinXUmin.github.io
-我爱坤坤
+个人主页
